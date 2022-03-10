@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @anmang450
-- 👀 I’m interested in ...learning
-- 🌱 I’m currently learning ...programer or create app
+- 👀 I’m interested in ... any kind of learning
+- 🌱 I’m currently learning ...to program or create app
 - 💞️ I’m looking to collaborate on ...any person with love to make a change
 - 📫 How to reach me ...email: anmang450@gmsil.com
 
